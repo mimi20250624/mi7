@@ -31,7 +31,7 @@
 
 点击访问：<a href="https://hl400.pages.dev/">独家爆料</a>
 
-点击访问：<a href="https://hl404.pages.dev/">黑料吃瓜网</a>
+点击访问：<a href="https://pi001.pages.dev/">15吃瓜今日黑料</a>
 
 点击访问：<a href="https://hl389.pages.dev/">黑料网</a>
 
