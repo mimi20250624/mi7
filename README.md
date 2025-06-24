@@ -13,7 +13,7 @@
 
 点击访问：<a href="https://cg184.pages.dev/">今日黑料</a>
 
-点击访问：<a href="https://cg40-3.pages.dev/">91吃瓜</a>
+点击访问：<a href="https://cg69.pages.dev/">吃瓜不打佯</a>
 
 点击访问：<a href="https://cg81-01.pages.dev/">吃瓜网站</a>
 
